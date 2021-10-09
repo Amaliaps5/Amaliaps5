@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amaliaps5
-- 👀 I’m interested industry 4.0
+- 👀 I’m interested industry 4.0 and digital transformation
 - 🌱 I’m currently learning sciencie computer for lawyers
 - 💞️ I’m looking to collaborate on -digital transformation for enterprises
 - 📫 How to reach me. By email at amaliaps5@gmail.com
